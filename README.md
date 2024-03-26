@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **Truongandesignerwp@gmail.com**
 
-- 📄 Know about my experiences [I work effectively in groups, especially in leadership positions. I used to work at Intel and have achievements such as Role Model, first prize in composing songs for Intel, besides that, I always develop and change processes towards the company's benefits, bringing profitable value to the company.](I work effectively in groups, especially in leadership positions. I used to work at Intel and have achievements such as Role Model, first prize in composing songs for Intel, besides that, I always develop and change processes towards the company's benefits, bringing profitable value to the company.)
+- 📄 Know about my experiences I work effectively in groups, especially in leadership positions. I used to work at Intel and have achievements such as Role Model, first prize in composing songs for Intel, besides that, I always develop and change processes towards the company's benefits, bringing profitable value to the company.
 
 - ⚡ Fun fact **I am a funny, friendly person and often make jokes when I feel the need to laugh.**
 
